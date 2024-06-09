@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NamcoManic
+- 👀 I’m interested in video gaming
+- 🌱 I’m currently learning moding said games and por help bug finding.
+- 💞️ I’m looking to collaborate on dnd and just goofing around the internet one way or another.
+- 📫 How to reach me usually searching my name and you can find me easily.  message me anywhere you found the name.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have no clue what to do next usually  ;P
